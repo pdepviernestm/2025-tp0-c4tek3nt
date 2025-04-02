@@ -6,7 +6,7 @@ Mi nombre es Caterina Kent
 
 En mi tiempo libre me gusta leer, jugar a la play/compu, salir con amigos y ver peliculas.
 
-Los videojuegos que juego mas frecuentemente son Fornite, Lethal Company y Call of Duty.
+Mis juegos favoritos son el Call of Duty, Fornite, Valorant y el Battlefront.
 
 Profesionalmente espero poder desarrollarme en el campo de los videojuegos y ciberseguridad.
 
